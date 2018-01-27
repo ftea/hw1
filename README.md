@@ -10,11 +10,11 @@
  1. Винсент Ван Гог, "Цветущие ветки миндаля", 1890.
  ![Цветущие ветки миндаля](http://safiullin.su/wp-content/uploads/2015/12/Vinsent-Van-Gog-Vincent-Van-Gogh-TSvetushhij-mindal-Almond-Blossom-1890-75.jpg)
  2. Альфонс Муха, цикл панно.
- ! [цикл панно](http://www.izuminki.com/images/xudozhnik-alfons-muxa-master-iskusstva-dlya-vsex-2/26.jpg)
+ ![цикл панно](http://www.izuminki.com/images/xudozhnik-alfons-muxa-master-iskusstva-dlya-vsex-2/26.jpg)
  3. Иван Константинович Айвазовский, "Волна", 1889.
  ![Волна](http://static1.repo.aif.ru/1/23/441099/ab750433e8ad58060f932f554c70a03a.jpg)
  4. Джон Уильям Уотерхаус, "Офелия", 1894.
- ![Офелия](https://gallerix.ru/pic/W/1628379096/1313151355.jpeg)
+ ![Офелия](https://upload.wikimedia.org/wikipedia/commons/4/4f/Ophelia_1894.jpg)
    - Мне интересно и современное искусство, сейчас существует огромное количество дижитал-художников, иллюстраторов, художников-комиксов и т.д., за которыми я слежу в соцсетях.
 * Как и большинство в наше время, я люблю смотреть кино и сериалы, а так же читать книги.
 
